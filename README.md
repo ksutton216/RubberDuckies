@@ -1,12 +1,12 @@
-## Welcome to GitHub Pages
+## Rubber Ducks Are Very Cute, And You Must Agree.
 
-You can use the [editor on GitHub](https://github.com/ksutton216/RubberDuckies/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+You can use [this link](https://www.google.com/search?q=cute+rubber+ducks&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjT-vWn8KHzAhXF-J4KHXECATEQ_AUoAXoECAQQAw) to see some other extremely cute rubber ducks that were not drawn by me.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Whenever you see a rubber duck, you should look at it and think, "Man, that is one cute rubber duck." If you don't, you are a shame to the rubber duck fan club.
 
-### Markdown
+# You Don't Know What the RUBBER DUCK FAN CLUB Is?!?!?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+well no wonder, you fake rubber duck fan.
 
 ```markdown
 Syntax highlighted code block
