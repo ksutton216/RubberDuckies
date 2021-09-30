@@ -1,11 +1,11 @@
-## Rubber Ducks Are Very Cute, And You Must Agree.
+## Rubber Ducks Are Very Cute, And You **Must** Agree.
 The reason you are seeing this is because you don't agree with the fact that rubber ducks are cute.
 
 You can use [this link](https://www.google.com/search?q=cute+rubber+ducks&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjT-vWn8KHzAhXF-J4KHXECATEQ_AUoAXoECAQQAw) to see some other extremely cute rubber ducks that are not highlighted by this page.
 
 Whenever you see a rubber duck, you should look at it and think, "Man, that is one cute rubber duck." If you don't, you are a shame to the rubber duck fan club.
 
-# You Don't Know What the RUBBER DUCK FAN CLUB Is?!?!?
+# You Don't Know What the RUBBER DUCK FAN CLUB IS?!?!?
 
 well no wonder, you fake rubber duck fan.
 
