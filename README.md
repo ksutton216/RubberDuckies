@@ -23,7 +23,7 @@ You must work for your spot, publishing photos of cute rubber ducks to prove you
 
 There are _many_ rubber duck photos out there that have secured members **their** spot in the club, and here are a couple of them.
 
-![A Beautiful Rubber Duck, made by Armando Are](https://images.pexels.com/photos/3759364/pexels-photo-3759364.jpeg?auto=compress&cs=tinysrgb&h=650&w=940) This duck's raw emotion was captured right at the moment of the duck's last stage of grief, which was  photographed by Armando Are
+![A Beautiful Rubber Duck, made by Armando Are](https://images.pexels.com/photos/3759364/pexels-photo-3759364.jpeg?auto=compress&cs=tinysrgb&h=650&w=940) This duck's raw emotion was captured right at the moment of the duck's last stage of grief by Armando Are
 
 This photo secured Armando's spot in the club because of how he highlighted the beauty of this duck, and really capture the mysterious wonder of the life of this rubber duck.
 
