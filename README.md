@@ -34,5 +34,5 @@ And, there is this photograph:
 
 This rubber duck's quirkiness and sense of humor was beautifully captured by Ann H.
 
-### Many different genres of Duck Photography are accepted in this club, what will you make?
+### Many different genres of Duck Photography are accepted in this club, what will YOU make?
 
