@@ -10,9 +10,7 @@ Whenever you see a rubber duck, you should look at it and think, "Man, that is o
 well no wonder, you fake rubber duck fan.
 
 
-Most reasons why people don't get invited into the Rubber Duck Fan Club are such.
-
-### Like So:
+Most reasons why people don't get invited into the Rubber Duck Fan Club are such:
 
 - You don't think "Man, that is one cute rubber duck," everytime you see a rubber duck
 - You don't own a rubber duck
